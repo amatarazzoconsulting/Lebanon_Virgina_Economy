@@ -1,7 +1,7 @@
 # From Frontier County Seat to Rural Innovation Hub: The Economic Transformation of Lebanon, Virginia
 ![Townshot image](lebanon_pic.png)
 ## A Comprehensive Strategic Framework for Agricultural Modernization, Technology Integration, and Regional Prosperity in Southwest Virginia's Heartland
-## By Anthony Mayatazzo (c) 2026
+## By Anthony Matarazzo (c) 2026
 
 
 ---
